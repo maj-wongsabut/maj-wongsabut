@@ -1,5 +1,5 @@
 - 👋😊 Hallå, I’m Supattra Maj Wongsabut
-- 👀 I’m interested in ... Design, Photography, a litlle bit of coding, skiing snowboarding.
+- 👀 I’m interested in ... Design, Photography, a litlle bit of coding, skiing & snowboarding.
 - 🌱 I’m currently learning ... Frontend development
 - 💞️ I’m looking to collaborate on ...
 - 📫 Reach me on ... maj.wongsabut@outlook.com
